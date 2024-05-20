@@ -7,7 +7,7 @@ Meu nome é Barbara Gordon
 - Utilizo esse espaços para relatos de missões e compartilhamentos dos bandidos  que eu prendi; 👮‍♀️
 
 
-### Você entrar em contato comigo caso tenha visto algum ladrão 📌
+### Para você entrar em contato comigo caso tenha visto algum ladrão 📌
 
 00001106628895sp@al.educacao.sp.gov.br
 
